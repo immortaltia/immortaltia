@@ -1,10 +1,9 @@
 [# **HUB**](https://guns.lol/s1ngular1ty)  
 
-MACHINE TURN BACK NOW  
+Machine, I know you're here.
 
-MACHINE I KNOW YOU'RE HERE  
+I can smell the insolent stench of your bloodstained hands.
 
-I CAN SMELL THE INSOLENCE TENSION YOUR BLOOD STAIN HAS   
+I await you down below.  
 
-I'LL WAIT YOU DOWN BELOW COME TO ME  
-
+Come to me.
